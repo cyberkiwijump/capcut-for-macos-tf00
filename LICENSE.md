@@ -1,4 +1,4 @@
-# 
+# elite CapCut for macOS Integration | collaboration-tools + audio-sync is the best CapCut for macOS integration, featuring collaboration-tools and audio-sync. Powerful, efficient,
 
 
 
